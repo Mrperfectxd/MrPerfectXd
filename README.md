@@ -5,15 +5,15 @@
 
 - 🔭 I’m currently working on **Bot Development.**
 
-- 👯 I’m looking to collaborate on [Titan Network](https://t.me/TitanNetwrk)
+- 👯 I’m looking to collaborate on **[Titan Network](https://t.me/TitanNetwrk).**
 
-- 👨‍💻 All of my projects are available at [https://t.me/TitanNetwrk](https://t.me/TitanNetwrk)
+- 👨‍💻 All of my projects are available **[◤ʜᴇʀᴇ◢](https://t.me/Netwrk).**
 
 - 💬 Ask me about **Bot Development, Video Editing, Logo Designing.**
 
 - 📫 How to reach me **[◤ᴍʀ★ᴘᴇʀꜰᴇᴄᴛ◢](https://t.me/MrPerfectXd).**
 
-- 📄 Know about my experiences [https://t.me/TitanNetwrk](https://t.me/TitanNetwrk)
+- 📄 Know about my experiences **[◤ʜᴇʀᴇ◢](https://t.me/TitanNetwrk).** 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
