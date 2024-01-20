@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Mr Perfect</h1>
 <h3 align="center">𝐀 𝐏ᴀssɪᴏɴᴀᴛᴇ 𝐁ᴏᴛ 𝐃ᴇᴠᴇʟᴏᴘᴇʀ 𝐅ʀᴏᴍ 𝐈ɴᴅɪᴀ (◕‿◕)</h3>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=mrperfectxd&label=Profile%20views&color=0e75b6&style=flat" alt="mrperfectxd" /> </p>
-<img align="centre" alt="Coding" height="600" width="600" src="https://telegra.ph/file/a545f12866df08de05564.jpg">
+<img align="centre" alt="Coding" height="900" width="900" src="https://telegra.ph/file/a545f12866df08de05564.jpg">
 
 - 🔭 I’m currently working on **Bot Development.**
 
