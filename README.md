@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Bot Development, Video Editing, Logo Designing.**
 
-- 📫 How to reach me **king.**
+- 📫 How to reach me **[◤ᴍʀ★ᴘᴇʀꜰᴇᴄᴛ◢](https://t.me/MrPerfectXd).**
 
 - 📄 Know about my experiences [https://t.me/TitanNetwrk](https://t.me/TitanNetwrk)
 
